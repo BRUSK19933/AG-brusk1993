@@ -22,7 +22,7 @@
   
  Telegram Chanell/ BRUSK 
   
- Github/  https://github.com/BRUSK19933
+ Github/  https://github.com/ BRUSK19933
  -------------------------------------------------------------------- 
   
  c&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;C&#x0;&#x0;&#x0;sC&#x0;&#x0;&#x0;t&#x0;&#x0;j&#x0;d&#x0;�&#x0;t&#x0;GHd&#x0;d&#x0;GHd&#x0;GHd&#x0;GHd&#x0;GHd&#x0;GHd&#x0;d&#x0;GHt&#x0;�&#x0;&#x0;d&#x0;&#x0;S(&#x0;&#x0;&#x0;NR&#x0;&#x0;&#x0;i*&#x0;&#x0;&#x0;s&#x0;&#x0;&#x0;[1;97m=s)&#x0;&#x0;&#x0;[1;97m[1][1;97m  Kurdistan Crack Numbers&#x0;&#x0;&#x0;  s&#x0;&#x0;&#x0;[0][1;97m  Logout            (&#x0;&#x0;&#x0;R&#x0;&#x0;&#x0;R&#x0;&#x0;&#x0;t&#x0;&#x0;&#x0;logot&#x0;&#x0;&#x0;action(&#x0;&#x0;&#x0;&#x0;(&#x0;&#x0;&#x0;&#x0;(&#x0;&#x0;&#x0;&#x0;s &#x0;&#x0;&#x0;223842065o.pyt&#x0;&#x0;&#x0;menuV&#x0;&#x0;&#x0;s&#x0;&#x0;&#x0;&#x0;                 c&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;&#x0;s�&#x0;&#x0;t&#x0;&#x0;d&#x0;�&#x0;}&#x0;&#x0;|&#x0;&#x0;d&#x0;k&#x0;r'&#x0;d&#x0;GHt&#x0;�&#x0;&#x0;n~|&#x0;&#x0;d&#x0;k&#x0;r�&#x0;t&#x0;j&#x0;d&#x0;�&#x0;t&#x0;GHd&#x0;GHyO&#x0;t&#x0;&#x0;d&#x0;�&#x0;�&#x0;&#x0;d&#x0;�&#x0;d        &#x0;}&#x0;x0&#x0;t&#x0;|&#x0;d 
